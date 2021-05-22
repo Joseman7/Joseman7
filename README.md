@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Joseman7
+- 👀 I’m interested in engineering, programming, music
